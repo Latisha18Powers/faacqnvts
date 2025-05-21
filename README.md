@@ -1,2 +1,1 @@
-# faacqnvts
 Activos Chainzol Aperçu 2025 - Ce que personne ne vous dit !
